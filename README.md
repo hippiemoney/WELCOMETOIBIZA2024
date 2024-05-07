@@ -1,2 +1,2 @@
 # WELCOMETOIBIZA2024
-Shop
+Shop PayPal Antoinedemoliere@gmail.com
